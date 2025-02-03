@@ -1,2 +1,2 @@
-# temporario
-SPOOFER PARA BANIMENTO HWID, SPOOFER REMOVE BAN HWID (SEM FLASH NA BIOS)
+# Spoofer-para-valorant-fortnite-cs2-pubg-warzone-Remove-ban-hwid-e-serial
+Remove banimento HWID, Remove banimento no valorant error 2, Spoofer funcional em desenvolvimento
